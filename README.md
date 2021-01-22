@@ -18,6 +18,6 @@ enjoy playing both video games and board and card games.
 
 Dustin Trinh-
 I am a software engineer major with an emphasis on web development and design.
-I have been married to my amzing wife Emily for almost 4 years!
+I have been married to my amaazing wife Emily for almost 4 years!
 Total we have been together for almost 10 years!!!!
 I am enjoy sports, gaming, and EATING. I enjoy eating a asian food the most, but pizza, burgers, and wings are probably my favorite american foods!
