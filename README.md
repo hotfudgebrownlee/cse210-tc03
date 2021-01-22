@@ -17,3 +17,7 @@ I served a Mission in Anaheim California from the years 2015-2017. I
 enjoy playing both video games and board and card games.
 
 Dustin Trinh-
+I am a software engineer major with an emphasis on web development and design.
+I have been married to my amzing wife Emily for almost 4 years!
+Total we have been together for almost 10 years!!!!
+I am enjoy sports, gaming, and EATING. I enjoy eating a asian food the most, but pizza, burgers, and wings are probably my favorite american foods!
