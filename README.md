@@ -10,3 +10,6 @@ Texas. In his free time, Jaren loves playing board and card
 games, spending time with friends and family, playing frisbee,
 eating obscene amounts of bread, and watching movies.
 
+Michael Fisher-
+I am a software engineering major in my Junior year. this is my 9th
+semester up here. I love hiking and doing just about anything outside. I served a Mission in Anaheim California from the years 2015-2017. I enjoy playing both video games and board and card games.
